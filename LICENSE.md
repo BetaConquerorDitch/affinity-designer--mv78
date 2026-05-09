@@ -1,4 +1,4 @@
-
+custom Affinity Designer for macOS Extension | 3D rendering + UI themes offers the most advanced Affinity Designer for macOS extension, with 3D rendering and UI themes. Ideal for
 
 
 
